@@ -1,0 +1,1 @@
+# Registry-Life-Full-Version
